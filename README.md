@@ -39,4 +39,4 @@ Changes to This Privacy Policy
 We may update our Privacy Policy from time to time. Thus, you are advised to review this page periodically for any changes. We will notify you of any changes by posting the new Privacy Policy on this page. These changes are effective immediately after they are posted on this page.
 
 Contact Us
-For questions, suggestions or to request personal data deletion contact us at mu.ozer.06@gmail.com
+To request personal data deletion contact us at mu.ozer.06@gmail.com
